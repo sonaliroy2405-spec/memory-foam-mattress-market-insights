@@ -1,5 +1,7 @@
 # Memory Foam Mattress Market – Industry Report (2026)
 
+<img width="1920" height="1080" alt="Memory Foam Mattress Market" src="https://github.com/user-attachments/assets/2fbdd202-1ac5-4d86-9b95-cfb879667528" />
+
 The global memory foam mattress market continues to grow due to increasing consumer focus on sleep quality and ergonomic comfort. E-commerce channels, direct-to-consumer models, and technological innovation are driving expansion, while raw material volatility and logistical constraints present ongoing challenges.
 
 **Market Overview**
